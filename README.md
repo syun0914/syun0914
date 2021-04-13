@@ -2,4 +2,4 @@
 - 🌱 저는 중학생이에요.
 
 - 👋 Hello, I'm @syun0914.
-- 🌱 I'm middle student.
+- 🌱 I'm middle school student.
